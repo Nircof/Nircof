@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Nico (yeah, my actual name isn't Nircof) and this isn't my main account UwU.
+- 👀 I’m interested in Cybersecurity.
+- 🌱 I’m currently learning Reverse Engineering (I already know some stuff but I'm learning a few more advanced things rn).
+- 💞️ I’m looking to collaborate on nothing specific.
+- 📫 My Discord: nicUwU#0768 My Twitter: @Nircof_Duum
